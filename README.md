@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on ...coding platforms
 - 🤔 I’m looking for help with ...coding
 - 💬 Ask me about ...my interests
-- 📫 How to reach me: ...by email
+- 📫 How to reach me: ...sta88567@gmail.com
 - 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ...i don't like animals
 -->
